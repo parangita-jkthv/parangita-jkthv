@@ -19,4 +19,4 @@ When I'm not looking at a terminal or training models, I'm usually hidden behind
 
 ## 📫 Let's Connect!
 * **LinkedIn:** https://www.linkedin.com/in/parangita-baruah-bb533119a/
-* **Email:** baruahparangita@gmail.com
+* **Email:** parangita.25scs1003002581@gmail.com
